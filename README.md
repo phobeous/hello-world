@@ -1,3 +1,3 @@
 # hello-world
 
-Emisen jarut afusei averocoupucha
+Emisen Jarut Afusei AveroCoupucha
